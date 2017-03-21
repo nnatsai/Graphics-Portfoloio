@@ -5,3 +5,6 @@ Secondly, I created a poster for an event I heleped plan for a company Called Co
 The poster is also displayed on their website at http://www.getcolour.io/gsu
 I am a First Year Residential Experience Mentor for Georgia State University's Housing, part of my job includes planning programs for freshmen and creating posters and fliers for the event.
 I also attatched one poster I made for this event.
+
+I not only have a lot of experience with Adobe Photoshop, but I also have expereince with Adobe Premier Pro, which I frequently use to edit video content which I use to upload on youtube. Please follow the link to my channel to view some of the content I have made.
+https://www.youtube.com/notjustnadia
